@@ -1,1 +1,1 @@
- > A child that is not embraced by the village will burn it down to feel its warmth
+> Convenience is a cup holder in a car. Necessity is wi-fi out of the box on a laptop computer.
