@@ -1,1 +1,2 @@
-> Convenience is a cup holder in a car. Necessity is wi-fi out of the box on a laptop computer.
+* :wave: Hi, I’m Alberto, aka @ModifiedBear
+* :mailbox: You can contact me through mailto:alberto.ruiz@opticamember.org
